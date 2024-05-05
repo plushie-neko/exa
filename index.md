@@ -3,4 +3,6 @@
 
 ### [Электротехника](https://plushie-neko.github.io/exa/et)
 ***************************************************************
-![msg1830870261-148073](https://github.com/plushie-neko/exa/assets/146845322/b6d0f995-6fcf-447e-ae83-52f367604601)
+
+
+![msg1830870261-148073](https://github.com/plushie-neko/exa/assets/146845322/cf2d8cde-d1af-440a-8a87-2c8a62432020)
